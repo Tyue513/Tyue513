@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Tyue513
+- 👀 I’m interested in JS, HTML und Lua
+- 🌱 I’m currently learning Mac OS understanding
+- 💞️ I’m currently Single
+- 📫 How to reach me contact me!
